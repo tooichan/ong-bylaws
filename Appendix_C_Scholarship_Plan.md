@@ -1,22 +1,30 @@
 # Scholarship Plan
-###### Last updated Winter 2018
+###### Last updated Fall 2018
 
 The purpose of this document is to outline the objectives of the scholarship chair.
 
+### Academic Goal
+
+At the start of each term, every member may submit one academic goal to the scholarship chair for the term and/or for the school year.  
+The submitted goals will be reviewed and tracked by the scholarship chair.  
+At the end of terms, the scholarship chair will announce the result of academic goals if they are reached fully or partially.
+
 ### Scholarship Competition
 
-At the start of each term, the scholarship chair must collect every member’s previous term’s grades. 
-The scholarship chair will then assign the brothers into groups of roughly six members. 
-These groups will compete against each other to see which group can get the highest group average for the current semester. 
-The group with the highest average of the individual GPAs will receive a prize determined by the scholarship chair and executive committee.
+At the start of each term, the scholarship chair must collect every member’s previous term’s grades.  
+The scholarship chair will then assign the brothers into study groups of two or more members.  
+The members of study groups will be encouraged to hold each other academically responsible and assist each other in the process.  
+The study group of which its members made the most progress towards their individual academic goals, as determined by the scholarship chair and member development committee, will become the winning group of the scholarship competition for the term.  
+The winning group will receive a prize determined by the scholarship chair and member development committee.
 
 ### Study Hours and Study Halls
 
-The scholarship chair and each executive member shall each host a two hour study session weekly.
-Any interest member may also host study sessions as long as they are reported to the scholarship chair.
-The session should be a productive workspace in either campus libraries or the chapter house.
-It is the responsibility of the host to ensure study sessions are silent and no extraneous devices being used.
-Members are encouraged to attend at least one session weekly.
+At least two two-hour study sessions must be held weekly.  
+The scholarship chair is reponsible to see to that the study sessions are held.  
+Any interest member may host study sessions as long as they are reported to the scholarship chair. Otherwise, the sessions will be hosted by the scholarship chair.  
+The session should be a productive workspace in either campus libraries or the chapter house.  
+It is the responsibility of the host to ensure study sessions are silent and no extraneous devices being used.  
+Members are encouraged to attend at least one session weekly.  
 If a member finds the study sessions unproductive for any reason, changes or alternatives can be made with the scholarship chair.
 
 ### Three-Strike Policy
